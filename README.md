@@ -10,11 +10,6 @@
 - Siempre intento aprender cosas nuevas y mejorar cada día.
 
 ## Intereses
-
 - Fútbol
 - Videojuegos
 - Aviónica
-
----
-
-Gracias por visitar mi perfil.
